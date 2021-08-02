@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Sanchi2010
+- 👀 I’m interested in science and math
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me: email sanchishiva1020@gmail.com
